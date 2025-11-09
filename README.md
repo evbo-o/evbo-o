@@ -1,2 +1,2 @@
-## [rentry](https://rentry.co/evbo___)^_^
+## [neocities](https://seawattgaming.neocities.org/)^_^
 
